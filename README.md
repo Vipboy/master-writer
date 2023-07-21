@@ -1,5 +1,5 @@
 # Master Writer
-
+![master-writer_logo](/Master_Writer_logo_01.jpg)
 # Become an Expert Literary Writer
 
 ## Core Idea
