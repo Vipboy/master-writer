@@ -1,6 +1,6 @@
 # Master Writer
 ![master-writer_logo](/Master_Writer_logo_01.jpg)
-# Become an Expert Literary Writer
+# Become an Expert Literary Writer!
 
 # Are you the next Stephen King? or the next Agatha Christie?
 
